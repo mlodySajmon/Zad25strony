@@ -1,1 +1,1 @@
-# Zad25strony![Uploading {713E7676-3D32-4824-93BB-7951B90E67D8}.png…]()
+[Uploading {713E7676-3D32-4824-93BB-7951B90E67D8}.png…]()
